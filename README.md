@@ -6,18 +6,19 @@ We are providing you the worldclass stop/djvu decryptor for online id ransomware
 There are no alternatives to the stop djvu decryptor, which comes with a full refund guarantee. Our decryptor has received more than 100 genuine positive reviews from customers infected with the stop/djvu ransomware online ID. The usage of STOPDJVU Decryptor is also very simple and straightforward.
 
 ### 📫 How to reach me: ...
-You can contact us on our official instagram account @stopdjvudecryptor or on our official Whatsapp +447548623550
+You can contact us on our official instagram account @stopdjvudecryptor or on our official Whatsapp +447448635431
 We offer money back guarantee.
-Visit our official website for more informatiom: http://stopdjvudecryptor.org/
+Visit our official website for more informatiom: http://stopdjvudecryptor.ru/
 
 ### Whatsapp Number
-## +447548623550
+## +447448635431
 
 ### Instagram
 https://www.instagram.com/stopdjvudecryptor/
 
 ### Website
-https://stopdjvudecryptor.org/
-
+[https://stopdjvudecryptor.ru/
+](https://stopdjvudecryptor.ru/
+)
 ### Watch Usage Here
-https://www.youtube.com/watch?v=leWTqe8QLDU
+[https://www.youtube.com/watch?v=wI_V2_J0rMY](https://www.youtube.com/watch?v=wI_V2_J0rMY)
